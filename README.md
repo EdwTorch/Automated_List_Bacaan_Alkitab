@@ -1,0 +1,1 @@
+# Automated_List_Bacaan_Alkitab
